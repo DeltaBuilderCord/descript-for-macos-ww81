@@ -1,4 +1,4 @@
-
+instant Descript for macOS Extension | keyframe-animation + echo-removal is the best Descript for macOS extension, featuring keyframe-animation and echo-removal. Safe, efficient,
 
 
 
